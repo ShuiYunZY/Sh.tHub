@@ -1,4 +1,4 @@
-# Chapter 2
+# Chapter 2 Hope Fades
 
 As the death toll climbed higher and higher, hope began to fade. It became clear that COVID-19 was not just a temporary inconvenience, but a global catastrophe that would change the course of history forever. Society as we knew it began to crumble, with businesses closing their doors, schools shutting down, and essential services overwhelmed by the sheer magnitude of the crisis.
 

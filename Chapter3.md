@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 3 The Silence
 
 And then, one by one, the lights began to go out. Hospitals were overwhelmed, healthcare workers exhausted, and supplies dwindling. The world watched helplessly as loved ones slipped away, unable to say a proper goodbye or hold a proper funeral. Grief and despair hung heavy in the air, a dark cloud that seemed to envelope the entire planet.
 

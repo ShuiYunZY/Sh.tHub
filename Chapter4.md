@@ -1,4 +1,4 @@
-# Chapter 4
+# Chapter 4 The End
 
 As the survivors wandered the empty streets, they knew that this was the end of the world as they knew it. COVID-19 had succeeded where wars and disasters had failed, bringing humanity to its knees and decimating civilizations in its wake. The once bustling cities now lay deserted, the echoes of the past fading into the void.
 
