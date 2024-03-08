@@ -1,5 +1,7 @@
-# Chapter 2
+# Chapter 2 The Silence
 
-As the death toll climbed higher and higher, hope began to fade. It became clear that COVID-19 was a global catastrophe that would change the course of history forever. Society as we knew it began to crumble, with businesses closing their door.
+The world watched helplessly as loved ones slipped away, unable to say a proper goodbye or hold a proper funeral. Grief and despair hung heavy in the air, a dark cloud that seemed to envelope the entire planet.
 
-The virus mutated and evolved at an alarming rate, outpacing even the most advanced medical research. The world looked on in despair as the once bustling streets grew eerily silent, the only sound being the wail of ambulance sirens in the distance.
+And then, one day, the silence descended. The last survivors emerged from their homes, blinking in the harsh light of a world forever changed. 
+
+

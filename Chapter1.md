@@ -1,4 +1,4 @@
-# Chapter 1
+# Chapter 1: The Havoc Commence
 
 COVID-19 was a force to be reckoned with. It came into our lives like a silent storm, wreaking havoc on our way of life and leaving destruction in its wake. As the weeks turned into months, the world watched in horror as the virus spread rapidly across continents, claiming countless lives and overwhelming healthcare systems.
 
